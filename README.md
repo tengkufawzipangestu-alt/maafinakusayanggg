@@ -1,0 +1,2 @@
+# maafinakusayanggg
+maafin aku sayangg
